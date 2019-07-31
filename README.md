@@ -8,3 +8,5 @@
 
 
 - [学霸笔记 · 教育综合知识汇总](http://mp.weixin.qq.com/mp/homepage?__biz=MzIxODk3MzczMQ==&hid=4&sn=1239a2aaf97d2e66368204b44cbf1b91&scene=18#wechat_redirect)
+
+- [教师考编资源下载(各辅导机构视频培训课程)](http://mp.weixin.qq.com/mp/homepage?__biz=MzIxODk3MzczMQ==&hid=2&sn=e84af9d3239324a58d4ecf50bf6e6b4f&scene=18#wechat_redirect)
